@@ -1,4 +1,4 @@
-### Hi there 👋
+### Usa LA FUERZA con responsabilidad 🤨
 
 # Uniovi
 ## 3º
